@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱 I’m currently learning at Primakara University<br><br>
+🌱 Informatics Student at Primakara University<br><br>
 
 
 ## 🌐 Socials:
